@@ -1,3 +1,6 @@
 # iwantapullbadge.md
 
-GIMME GIMME GIMME
+ofiwefonewobnwofbouwebfoefobewofioewf
+
+
+i chaned your mom haha
